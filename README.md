@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kocerl
+- 👋 Hi, I’m @Kouichi Hayashi.
 - 👀 I’m interested in economics.
 - 🌱 I’m currently learning economics.
 - 💞️ I’m looking to collaborate on NFT researchers.
